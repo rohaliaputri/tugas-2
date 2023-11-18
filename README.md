@@ -1,3 +1,4 @@
+![bg](https://github.com/rohaliaputri/tugas-2/assets/144677172/0b6aac94-02a9-4ac7-be45-a8c6fd2901a0)
 ![jalan](https://github.com/rohaliaputri/tugas-2/assets/144677172/1e2991ac-f4bf-40e0-af27-6cb6889a7ac6)
 ![travel](https://github.com/rohaliaputri/tugas-2/assets/144677172/e47d0ec4-0525-4c79-9efe-d12c0017ac15)
 ![The Le Hu Garden](https://github.com/rohaliaputri/tugas-2/assets/144677172/92f0be1d-17d3-469a-9e6e-5a27cfba8872)
