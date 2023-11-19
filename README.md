@@ -1,3 +1,4 @@
+![620b45529a628253156693](https://github.com/rohaliaputri/tugas-2/assets/144677172/28b03adc-40a0-4e37-a81c-e781d29308a7)
 ![ikan-mas-raksasa-2](https://github.com/rohaliaputri/tugas-2/assets/144677172/c0e143c3-add8-4043-9cb1-6b2c331012ad)
 ![wisata 2](https://github.com/rohaliaputri/tugas-2/assets/144677172/2ad817cb-51ae-4be2-9c86-ed614e9a56a1)
 ![Untitled Project (3)](https://github.com/rohaliaputri/tugas-2/assets/144677172/be8d3f57-631e-47a7-88ba-8dc64da8a07f)
